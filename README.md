@@ -4,7 +4,7 @@ usually it/its or name pref , my pronouns change daily so follow this to make it
 
 i tend to get attached to my newly made ponies , random fact
 
-into enstars , orv .. webtoon for now , project moon currently , if you want to talk to me abt them !
+into enstars , orv .. going to start reading to novel soon , project moon currently , if you want to talk to me abt them !
 
 i like writing too !
 
