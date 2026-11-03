@@ -9,3 +9,5 @@ into enstars , orv , project moon currently , if you want to talk to me abt them
 i like writing too !
 
 i'm really sensitive and i have undisclosed issues that i often supress , do be nice to me and forward as possible ..
+
+tyy @pt-everypony
